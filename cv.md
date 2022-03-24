@@ -25,5 +25,14 @@ ___I’m a nice fun and friendly person, I’m honest and punctual, I work well 
  >GIT & Github
 
  >Adobe PhotoShop
- 
+
+ ### language 
+
+> Russian strong B2
+
+> English B1
+
+> Uzbek native 
+
+
  
