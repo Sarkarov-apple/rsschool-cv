@@ -1,1 +1,1 @@
-https://Sarkarov-apple.github.io/rsschool-cv/cv
+https://Sarkarov-apple.github.io/rsschool-cv/cv 
